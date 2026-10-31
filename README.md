@@ -1,1 +1,0 @@
-# Componente-practico--precticas-simuladas-
